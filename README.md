@@ -1,0 +1,1 @@
+# parcialARSW1corte
